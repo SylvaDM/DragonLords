@@ -1,0 +1,3 @@
+>A curious glint draws your attention upward. Ahead are a group of six metallic birds circling what seem to be the remains of a centaur. The creatures take turns diving down to rend and pull at fresh chunks of its flesh with their cruel bronze beaks. 
+
+The six **stimfay** are feasting on the carcass of a centaur. They ignore the heroes unless they get too close or look as if they might try to take their food away. At that point, the stimfay will attack the heroes. The stimfay belong to Amazon warriors who may be hunting nearby-but it's also possible that their masters were killed. 

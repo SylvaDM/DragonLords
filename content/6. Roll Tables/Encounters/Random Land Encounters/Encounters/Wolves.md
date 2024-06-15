@@ -1,0 +1,3 @@
+>As you make camp, the quiet of the evening is broken by mournful howls. Soon, the source of the noise comes into view: a pack of gray wolves, which advance upon you hungrily! They are led by a black, horse-sized wolf with bony spines protruding from its back. It glares at you with malice as its pack circles. 
+
+A pack of a dozen **wolves** led by a **dire wolf** have been driven to attack by hunger. Their howls should be heard in the distance as night falls, but the wolves won't attack until the heroes have made camp and are settling down for the night. They will gang up on one hero and attempt to drag that person away into the dark. They are seeking an easy meal-not a battle to the death. 

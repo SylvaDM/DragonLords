@@ -1,0 +1,3 @@
+>In the distance, you notice a large figure stooping to forage in the grass. He suddenly stares up at you, as if alerted to danger. Rising to his full height, you can see that he has six arms and a single eye.
+
+This **gygan** is part of a small tribe of **d4 gygans** who are hidden in some nearby woods. He does not attack unless the party provokes him—he does not want to endanger his tribe by drawing unwanted attention. If the party attacks, then the rest of his tribe joins the battle after 3 rounds. They fight to the death, to prevent discovery.

@@ -1,0 +1,3 @@
+>A pair of enormous stone forearms reach out of the ground next to the path that you are following. The statues are completely still, frozen in a gesture that appears to be grasping at the sky. Although the stonework appears to be finely carved, there are no other signs of civilization or any man-made structures anywhere in the vicinity.
+
+The pair of giant stone arms are normally inactive, unless the heroes have killed either Sydon or Lutheria. In that case, Kentimane has begun to awaken, and the **Hands of Kentimane** will attack with the intent to destroy the party!

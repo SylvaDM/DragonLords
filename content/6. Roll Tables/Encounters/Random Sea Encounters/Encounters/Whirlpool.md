@@ -1,0 +1,1 @@
+This is Charybdis, the legendary whirlpool. Somehow, the heroes have wandered off course and into the most dangerous part of the Forgotten Sea. Refer to the section on Charybdis in the Forgotten Sea chapter for details.

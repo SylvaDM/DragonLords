@@ -1,0 +1,3 @@
+>A sudden rain of arrows whizzes through the air toward you, thunking into the ground at your feet. You hear hoof beats closing fast as a troop of centaurs crests a nearby hill. The centaurs track your movements with their bows as they prepare to launch a second volley.
+
+A band of 2d4 **centaurs** engages the heroes, firing arrows at them from 500 ft. away. If the heroes attempt to escape, the centaurs will allow them to flee. They will spend several rounds jeering and laughing at the cowardly mortals. Each of the centaurs carries a drinking horn and a bronze spear in addition to a bow. If the heroes stand and fight, the centaurs will fire one more volley of arrows and then close for a hand-to-hand fight.

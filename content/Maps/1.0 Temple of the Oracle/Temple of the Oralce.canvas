@@ -1,0 +1,8 @@
+{
+	"nodes":[
+		{"id":"59ae94d3749ed279","type":"file","file":"Z_Assets/Temple of the Oracle - Exterior.png","x":349,"y":-660,"width":900,"height":1200},
+		{"id":"d59af3dfb1b2bb6a","type":"file","file":"Map Images/Temple of the Oracle - Interior.png","x":-520,"y":-531,"width":1199,"height":942},
+		{"id":"5ad291ed6830c886","type":"file","file":"Map Images/Temple of the Oracle - grotto.png","x":-520,"y":536,"width":1040,"height":824}
+	],
+	"edges":[]
+}

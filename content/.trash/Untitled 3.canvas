@@ -1,0 +1,8 @@
+{
+	"nodes":[
+		{"id":"a8d84417c6bfe7bf","x":-660,"y":-360,"width":250,"height":60,"type":"text","text":"fgdfgdf"},
+		{"id":"7ee52dda661a2643","x":-340,"y":-560,"width":400,"height":400,"type":"file","file":"Odyssey of the Dragonlords/2. Lore/Dramatis Personae/Titans/Sydon.md"},
+		{"id":"bb75d825a2426e40","x":296,"y":-292,"width":604,"height":772,"type":"link","url":"https://www.dndbeyond.com/characters/114083759/2rumIS"}
+	],
+	"edges":[]
+}

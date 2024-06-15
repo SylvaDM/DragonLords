@@ -1,0 +1,1 @@
+Sacrificed the boar to Vallus - When they meet her she will gift them a scarab of protection

@@ -1,0 +1,3 @@
+>A slight rustling comes from the tall grass that runs along the side of the road, and then a young man with the horns and legs of a goat jumps out in front of your party. He begins playing a jaunty tune from his panpipes and skips away at a leisurely pace.
+
+A **satyr minstrel** with pan pipes uses his melody to charm the heroes and bring them closer to him. Then he will use his pan pipes to put the heroes to sleep so that he can rob them of all their gold and silver. He will try to knock out any hero who resists his song but if he takes more than half his hit points in damage he will flee.

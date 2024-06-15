@@ -1,0 +1,3 @@
+>Peals of bleating laughter herald the appearance of six diminutive humanoid goats. They continue their chittering as they point towards you, make lewd gestures, and throw insults. Some of them throw rocks at you.
+
+A band of a ld6 shrieking **goatlings** and one **goatling trickster** descends upon the heroes. It's hard to know which is worse: their shrill mockery or the pervading smell of unwashed goat. 

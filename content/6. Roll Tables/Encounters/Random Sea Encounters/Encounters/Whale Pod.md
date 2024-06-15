@@ -1,0 +1,3 @@
+>You feel a low rumble around the ship. Moments later, a group of large whales breach the surface of the water. The whales have with razor-sharp teeth, and one of the creatures has the corpse of a colossal squid in its jaws. Despite their ferocious appearance, the creatures show little interest in your ship.
+
+The whales are no threat to the party. After breathing on the surface for a few moments, they dive back down into the depths and continue on their way. Any attempt to attack them simply drives them away immediately.

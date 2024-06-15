@@ -1,0 +1,3 @@
+>An imposing ship sails in your direction, flying a bloody red flag emblazoned with a ram's skull. As the ship draws closer, you can see a motley crew on its deck. The crew includes heavily-tattooed humans, elves, dwarves, and halflings brandishing steel weapons.
+
+These are barbarians from Indigo Island, and they are searching for plunder. They are commanded by a **barbarian paragon** with 3d12 **bandits** and 1d4 **druids** under his command. They will draw alongside and attack, showing little fear as they leap aboard the party's ship. However, if their captain is killed, they will attempt to withdraw to their own ship and flee.

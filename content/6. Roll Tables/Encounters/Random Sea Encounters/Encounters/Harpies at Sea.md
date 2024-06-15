@@ -1,0 +1,5 @@
+>The peaceful stillness of the sea around you is interrupted by panicked bleating from the skies above. A sheep is being tossed around by a flock of “birds” with the heads and torsos of women. Two of the creatures tear apart the still-living sheep in a dispute over its meat. As blood and gore rain down upon the deck, the foul creatures begin to sing with a bewitching voices.
+
+A flock of 2d6 **harpies** descends upon the heroes’ ship. They drop what’s left of the unfortunate sheep into the sea, chumming the water to attract sharks. They then circle the ship and use their *luring song* to convince victims to leap into the ocean to reach them. Three rounds after they arrive, fins can be seen cutting through the water as 2d4 **hunter sharks** arrive.
+
+The sharks attack anyone who swims in the water, using stealth to strike from below. The harpies intend to scavenge chunks of meat from the heroes after the sharks tear them to shreds. The harpies will fly away if half their number are killed or wounded. Any harpy reduced to half its hit points will fall into the sea and become a target for the sharks.

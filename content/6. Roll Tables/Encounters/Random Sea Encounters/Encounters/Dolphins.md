@@ -1,0 +1,3 @@
+>Your day is marked by a sign of good fortune. A pod of dolphins swims alongside your ship, clicking happily and playing in the waves at the prow.
+
+The dolphins playfully swim with the ship for an hour, keeping just ahead of it. If the players can use magic to speak to the dolphins, they can ask about nearby islands. The dolphins know the area, and can give a cursory description of each nearby island.

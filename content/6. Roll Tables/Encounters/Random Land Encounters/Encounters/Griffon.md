@@ -1,0 +1,3 @@
+>A grisly sight is before you: a griffon with blood-soaked fur and feathers is devouring a freshly killed horse. The remains of the mutilated rider, a heavily armed and armored man, have been scattered nearby. Intent upon enjoying its feast, the griffon does not appear to noticed you.
+
+A **griffon** is eating the corpse of a horse. The rider, a centurion, has been torn into pieces. The griffon will ignore the heroes unless they approach it. The centurion has a pouch with 10 gp and 40 sp. He also has a letter from King Acastus, ordering him to find the whereabouts of the “Heroes of the Prophecy” and report back to Mytros.

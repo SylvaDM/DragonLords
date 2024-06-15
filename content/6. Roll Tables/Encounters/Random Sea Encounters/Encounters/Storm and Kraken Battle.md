@@ -1,0 +1,5 @@
+>A violent storm brews on the horizon, and lightning flashes in the sky. However, rather than striking down from the heavens, the lightning crackles along the surface of the sea. As rain lashes down and the waves beat against your hull, the source of this the storm comes into view. A gargantuan, scaled monstrosity has wrapped itself around an equally enormous giant that stands knee-deep in the waves. The two creatures appear to be locked in mortal combat!
+
+The heroes are witnessing a battle between **Hergeron** (LE young **empyrean**) and the **Kraken**. Hergeron has been sent by his father, Sydon, to search out the Kraken and report back, but the creature ambushed him.
+
+Neither combatant will pay any attention to the party unless they mount some kind of attack or otherwise interfere. Hergeron will disengage and escape after three rounds of combat, and the Kraken will sink beneath the waves. If the heroes attempt to interfere, the Kraken will rise from the deep after a moment or two and attack for 1 round before sinking out of sight again. This attack is intended as a warning and a demonstration of its power.

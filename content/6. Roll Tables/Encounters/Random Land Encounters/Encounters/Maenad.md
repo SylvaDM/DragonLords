@@ -1,0 +1,3 @@
+>While following the road you come upon a bizarre camp. An unkempt woman with the feet and horns of a goat sings raucously and swigs from a filthy cup of wine. She is accompanied in her merrymaking by a handful of squat, bipedal goat-things. A sweet smell, not unlike roast pork, wafts from the corpse of a dwarf that is cooking over their fire.
+
+A **maenad** and d6 **goatlings** are drinking and singing by the side of the road. They are roasting a dwarven merchant that they ambushed, and the corpses of other merchants lie close by. The maenad and her gang won’t attack the heroes, but the goatlings can’t resist hurling insults. The creatures will fight to the death if attacked.

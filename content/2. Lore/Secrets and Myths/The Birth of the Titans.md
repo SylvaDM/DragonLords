@@ -1,0 +1,15 @@
+In the beginning, the islands of Thylea were populated only by harmless plants and gentle animals—the flora and fauna a reflection of the nurturing spirit of the Mother Goddess that sacrificed herself to create them. A virgin paradise, the Forgotten Land was kept safe from the perils and evils of the outside world by the giant Kentimane of the Hundred Hands—Thylea’s lover and protector. And together, the two were content.
+
+But one day, the tree at the centre of the islands—the transformed heart of the Mother Goddess herself—blossomed with seven strange fruits. Each the size of a boulder, they shimmered and pulsed with vibrant, shifting colours, almost as if alive. Seeing the tempting bounty sprouting from the branches, Kentimane reached from the ocean and plucked the fruit. His fifty heads gorged themselves on the succulent flesh, tearing and chewing until all that remained were seven spike-covered pits, which he tossed into the ocean.
+
+Instead of sinking, the pits floated on the waves, bobbing up and down. Offended by their taunting presence, Kentimane seized each pit in a clenched fist, squeezing so hard the spikes bit into his flesh and drew blood. Howling in rage, Kentimane slammed the pits down beneath the water, burying them deep beneath the muddy bottom of the ocean floor.
+
+But the next morning the pits floated back up to the surface. Before Kentimane could seize them again, the pits burst open and the children of Thylea and Kentimane sprang forth into existence.
+
+The hundred-handed god stared in wonder at his offspring: eight Titans born from the fruit of Thylea’s tree, fertilized by the blood of Kentimane himself. Each of the first six pits had incubated a single child blessed with a different attribute drawn from one of their parents: Strength; Beauty; Wisdom; Craft; Prophecy and Swiftness. As these six Titans grew from children into adults, they became demi-gods, each representing the aspect of their parents they most embodied.
+
+However, from the seventh pit two Titans were born: Sydon and Lutheria, twin brother and sister. Sydon embodied his father’s raging fury, and as he grew he became the God of Time and the Lord of Storms. His sister, Lutheria, inherited her mother’s stillness and calm... but without Thylea’s compassion or gentleness, she would eventually become the Goddess of Death and the Lady of Dreams.
+
+But all this was far in the future, and Kentimane did not foresee what his offspring would one day become. He could not imagine the strife and suffering the Twins would bring to the peaceful islands. If he had known, he might have drowned them on the spot. But instead, he scooped up his children from the waves—including Sydon and Lutheria—and placed them gently at the base of the great Heart-Tree rising up from the centre of the island, where Thylea could watch over them.
+
+Having deposited the children in the warm bosom of their mother, Kentimane returned to the sea and resumed his eternal vigil, bound by his sacred vow to keep Thylea—and now also their children—safe from the outside world.

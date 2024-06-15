@@ -1,0 +1,15 @@
+Their siblings gone, Sydon and Lutheria ruled supreme over the lands of Thylea, worshipped and honoured by the gygans, centaurs, nymphs and other fey. Ages passed, and the dead Titans were forgotten by the children they had created. As far as history remembered, the Twin Titans were the authors of all.
+
+But the remote continent birthed from their mother could not remain hidden forever. As the centuries passed, the so-called civilized races, humans, elves, dwarves and their like, began to stumble across the islands at the far reaches of the Forgotten Sea. The first to arrive were refugees and castaways, survivors of ships gone astray. Half-drowned, they crawled onto island shores and carved out a meagre existence among the native fey races.
+
+Sydon ignored these newcomers. They were too weak and pathetic to acknowledge. Lutheria found something compelling in their nature. When others came, the explorers and settlers, she stayed Sydon’s fury and allowed them to land safely so she could study these strange folk. As their numbers grew, the civilized races established small villages along the coasts. Bit by bit, they spread across the islands of Thylea, until their numbers brought them into conflict with the original inhabitants.
+
+At first, the civilized races suffered losses whenever they encountered the fey folk. They had neither the strength nor numbers to challenge the gygans or centaurs in battle. They lacked the power to resist the magic tricks and temptations of the nymphs, dryads and satyrs. Everything changed with the arrival of the Dragonlords, a band of heroes who fought astride great winged mounts.
+
+Their leader was Xander Huorath, with his mighty silver dragon, Balmytria. The second in command, Xander’s chief rival, was Rizon Phobas, who rode Balmytria’s mate, a great bronze dragon. Joining them were Adonis Neurdagon, beautiful and vain; the brothers Telamok and Estor Arkelandor, ruthless and savage warriors; and several others who have since been forgotten. Each warrior was oathsworn to a dragon, and together, they were nigh unstoppable in battle.
+
+The arrival of these magnificent creatures stoked Lutheria’s fascination with the newcomers. The dragons were unlike anything found in Thylea. At his sister’s urging, Sydon ignored the pleading of his worshippers to cleanse Thylea of the invaders. Under the leadership of the Dragonlords, the civilized races entered an age of unprecedented expansion.
+
+Villages became towns, and towns grew into great walled cities. Encounters between the newcomers and the native races became more frequent, and more violent. Now the newcomers were winning. The native races were pushed back, retreating into the unexplored wilds. Still, out of respect for his sister-wife’s curiosity, Sydon held his fury in check, just waiting an inevitable spark that would ignite the fires of all-out war.
+
+He did not have to wait long.

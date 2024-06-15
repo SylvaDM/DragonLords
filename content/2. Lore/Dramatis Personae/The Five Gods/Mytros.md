@@ -1,0 +1,5 @@
+# Goddess of Dawn
+Mytros is the most respected and renowned of the Five, and the namesake of the most important kingdom in Thylea. She is widely credited with the survival of “her” city during the destruction and immediate aftermath of the First War. She is said to appear to her priests as a warrior queen, clad in shimmering golden armor. However, she ascended to the heavens after the cataclysmic battle with [[Sydon]] and [[Lutheria]], and she no longer walks among mortals. Mytros is the most powerful of [[The Five Gods]], and the source of most priestly magic among the settler races in Thylea.
+
+## Myrtos' True Form
+Before coming to Thylea, Mytros was Balmytria, an ancient silver dragon. As Balmytria, she was responsible for creating the alliance between her dragon family and the mortal rulers who would become the Dragonlords. She chose to serve as the mount of Xander Huorath, the greatest of the Dragonlords. In her dragon form, [[Volkan]] was once her husband.

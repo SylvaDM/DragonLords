@@ -1,0 +1,3 @@
+>While traveling, you notice a stale stench carried on the breeze. You hear shrill voices from above, mixed with notes of a strangely alluring song. Looking into the skies, you see a flock of monstrous bird-women hovering and watching you from a distance.
+
+A flock of **d4 harpies** follow the party from a distance, hurling insults and threats but not attacking. They will wait until the heroes happen across some other threat, or if they cross an area of dangerous terrain. Then, the harpies will use their luring song to gain an edge before attacking.

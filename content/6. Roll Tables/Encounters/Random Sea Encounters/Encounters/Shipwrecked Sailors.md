@@ -1,0 +1,9 @@
+>he sea is relatively calm, but there is something float­ing on the ocean ahead. As you approach, you realize that it is the wreckage of a sailing ship from the world beyond Thylea. Only broken pieces of its hull, oars, and spars are bobbing in the water. But a closer look shows that there are survivors clinging to the wreckage: two men, a woman, and a dwarf. They are clearly exhausted and close to the point of death. 
+
+These few survivors are explorers from the outer world, hired by the ruler of a mighty nation to find Thylea, and unlucky enough to have their ship destroyed by Sydon. The nation in question can be any that fits your overall campaign structure and world. Although weak, they can describe the powers Sydon used to smash their ship, and all of them are deeply grateful to be rescued. The four are:
+- **Dengran** (human **bandit captain**): reckless, hand­some, and an annoying know-it-all.
+- **Heliope** (human **mage**): thoughtful, introspective, and always asking questions about Thylea.
+- **Rutger** (dwarven **veteran**): dour, keeps to himself, and careful to avoid conflicts which might get out of hand.
+- **Quinn** (human **noble**): complains about everything. He has assumed leadership of the four, even though the other three think he's a privileged idiot. He is the son of a noble who financed the failed exploration.
+
+These castaways are looking to reach safe land as soon as possible. These characters can be useful to ramp up the threat level of another ocean encounter. For exam­ple, if the roe attacks, it might grab one of the castaways and devour them, or the harpies could use their song to lure one of them into shark infested waters. 
